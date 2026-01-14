@@ -1,0 +1,2 @@
+# SIGED-certificado-preparatoria-autenticacion-CELD950618HSLRLN08
+CELD950618HSLRLN08
